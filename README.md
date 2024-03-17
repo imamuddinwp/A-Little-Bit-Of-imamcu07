@@ -1,11 +1,11 @@
 # A-Little-Bit-Of-imamuddinwp
 Hey there; it's me! Muhammad Imam Uddin was born and raised in Feni, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and 
 
-many more. I also love to keep myself up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'imamcu07'. To see 
+many more. I also love to keep myself up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'imamuddinwp'. To see 
 
-my online activities, search 'imamcu07' by your search engine. I have good knowledge of SEO, SMM, Digital Marketing, Programming, Website Development and many more. 
+my online activities, search 'imamuddinwp' by your search engine. I have good knowledge of SEO, SMM, Digital Marketing, Programming, Website Development, and many more. 
 
-Here are some of my work link:
+Here are some of my work links:
 
 	==:: Portfolio ::==
 
