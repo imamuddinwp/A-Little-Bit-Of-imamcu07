@@ -1,11 +1,11 @@
-# A-Little-Bit-Of-imamcu07
-Hey there; it's me! Muhammad Imam Uddin, born and raised in Feni, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and 
+# A-Little-Bit-Of-imamuddinwp
+Hey there; it's me! Muhammad Imam Uddin was born and raised in Feni, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and 
 
-many more. I also love to keep me up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'imamcu07'. To see 
+many more. I also love to keep myself up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'imamcu07'. To see 
 
-my online activities, search 'imamcu07' by your search engine. I have good knowledge in SEO, SMM, Digital Marketing, Programming, Website Development and many more. 
+my online activities, search 'imamcu07' by your search engine. I have good knowledge of SEO, SMM, Digital Marketing, Programming, Website Development and many more. 
 
-Here are some of my works link:
+Here are some of my work link:
 
 	==:: Portfolio ::==
 
@@ -61,39 +61,39 @@ WordPress	=>	https://imamcu07.wordpress.com/
 
 	==:: Social Media ::==
 
-Facebook	=> 	https://facebook.com/imamcu07
+Facebook	=> 	https://facebook.com/imamuddinwpbd
 
-Twitter		=>	https://www.twitter.com/imamcu07
+Twitter		=>	https://www.twitter.com/imamuddinwp
 
-LinkedIn	=>	https://www.linkedin.com/in/imamcu07
+LinkedIn	=>	https://www.linkedin.com/in/imamuddinwp
 
-Instagram	=>	https://instagram.com/m.imamcu07
+Instagram	=>	https://instagram.com/imamuddinwp
 
-Pinterest	=>	https://pinterest.com/imamcu07/
+Pinterest	=>	https://pinterest.com/imamuddinwp
 
 Youtube		=>	https://www.youtube.com/user/imamcu70/
 
-Reddit 		=>	https://www.reddit.com/user/imamcu307/
+Reddit 		=>	https://www.reddit.com/user/imamuddinwp
 
-GitHub		=>	https://github.com/imamcu07/
+GitHub		=>	https://github.com/imamuddinwp
 
-Dribble		=>	https://dribbble.com/imamcu07/
+Dribble		=>	https://dribbble.com/imamuddinwp
 
 Flickr		=>	https://www.flickr.com/people/imamcu307/
 
-Behance		=>	https://www.behance.net/imamcu07/
+Behance		=>	https://www.behance.net/imamuddinwp
 
-Medium		=>	https://medium.com/@imamcu07/
+Medium		=>	https://medium.com/@imamuddinwp
 
-Stack Overflow	=>	https://stackoverflow.com/users/4794817/imamcu07
+Stack Overflow	=>	https://stackoverflow.com/users/4794817/imamuddinwp
 
-Mix		=>	https://mix.com/imamcu07/	
+Mix		=>	https://mix.com/imamuddinwp/	
 
 	==:: ABout Me ::==
 
 Wikipedia	=>	http://bit.ly/wiki-imamcu07
 
-About Me	=>	https://about.me/imamcu07
+About Me	=>	https://about.me/imamuddinwp
 
 Biography	=>	https://prabook.com/web/imam.uddin/3754140
 
@@ -101,4 +101,4 @@ Biography	=>	https://prabook.com/web/imam.uddin/3754140
 
 Thanx for visiting me.
 
-ProudLy powered by : ImAmUdDiN
+Proudly powered by: ImAmUdDiN
